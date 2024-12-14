@@ -10,4 +10,4 @@ or u can drag it wherever
 
 ‎ ‎
 
-if ur pc is dogshit it wont work well 👍
+if ur pc is dogshit it wont work well 💩
